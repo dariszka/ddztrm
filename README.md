@@ -1,3 +1,3 @@
 # ddztrm
 
-website trying my best at selling art
+website for trying my best at selling art
